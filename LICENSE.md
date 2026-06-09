@@ -1,4 +1,4 @@
-# 
+# Oficial low cap gem sniper bot predefinições para Mac OS | Seguro low cap gem sniper bot predefinições para PC Windows. Com recuperação de tx falhadas e manipulação de nonce — otimizado para máximo desempeño en cada plataforma.
 
 
 
